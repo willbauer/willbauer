@@ -1,6 +1,6 @@
 ### Thanks for stopping by
 
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Image of Myself](Documents/Will Bauer Photos/Bauer, William copy.jpg)
 
 I'm Will Bauer, a senior at the University of Nebraska-Lincoln's College of Journalism and Mass Communications. I'm a studying journalism, broadcasting and sports communications. Yes, that's three majors. And, yes, I'm a nerd. 
 
